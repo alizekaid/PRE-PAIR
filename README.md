@@ -1,0 +1,3 @@
+#PRE-PAIR
+
+For gamers seeking a positive, toxicity-free gaming experience, whose challenge lies in finding compatible gaming partners and a healthy communication environment, the Pre- Pair is an innovative gaming platorm that fosters meaningful connections and ensures a non-toxic playing and communication space. As a gaming matchmaking platorm, it streamlines the process of connecting players with similar gaming preferences and ensures a respectul and friendly gaming environment. Different from other gaming platorms, our product prioritizes toxicity-free interactions, creating a welcoming space for gamers to enjoy their favorite games without encountering negativity or harassment.
